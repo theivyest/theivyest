@@ -45,3 +45,5 @@
 (i am them irl, sorry)
 
 ﹏ anti tt/td. you're weird.
+
+⌇ you flaunt how many people have you hidden for being a shithead.
