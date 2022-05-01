@@ -47,3 +47,5 @@
 ﹏ anti tt/td. you're weird.
 
 ⌇ you flaunt how many people have you hidden for being a shithead.
+
+﹏ you make dave/willc3st jokes (pick up knitting. get a hobby)
