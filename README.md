@@ -1,51 +1,41 @@
 
 # ៸៸ ivy's campfire 𖤐
 
-![help](https://media.discordapp.net/attachments/754019126875389961/865445705865887774/image1.png)
+![help](https://media.discordapp.net/attachments/804978370050916362/984928445098250290/unknown.png)
 
-🍏 **online** - feel free to interact! i'm actively on!
+📗 **online** - feel free to interact!
 
-🫐 **looking for chat** - please interact! very bored!!!!!
+📘 **looking for chat** - please interact!
 
-🍋 **away** - tabbed out / making skins, just wait for me to come back! feel free to whisp!
+📒 **away** - tabbed out / making skins, just wait for me to come back - feel free to whisper.
 
-🍎 **busy** - with regis / on smth / switching / do not interact.
+📕 **busy** - with regis / on drugs / (system) switching / do not interact
 
-## ・┈・┈・┈・┈・┈・┈
+## ─────﹒﹒﹒
 
-#### byi 
+### 📍 **Before you interact ;**
 
-﹏ 🍒 you can usually find me either below the bsd area or docks
+![shit](https://media.discordapp.net/attachments/804978370050916362/984928445396029530/unknown.png)
 
-⌇  i'm not okay with touching or using to hide. but you can whisper, kiss emote, give items, etc.
+🌈 I am fuckin' off the rails insane. Interact at your own risk.
 
-﹏ 🍉 i don't accept friend requests from people i don't talk to!
+🍭 I never use tone tags but ask if you need certain ones.
 
-⌇  i'm autistic, and have DID.
+🌼 I do not tag **drug use** with closer friends - 🍃🍄💊
 
-﹏ 🍒 i don't use tone tags. although i'm not against them
+🐸 I have a bitch personality to freaks.
 
-⌇  if you wanna be friends, ask for my discord!
+## ─────﹒﹒﹒
 
-﹏ 🍉 if you wanna sit with me just do it! i don't mind, usually!
+### 📍 **Do Not Interact ;**
 
-## ・┈・┈・┈・┈・┈・┈
+🌻 Proshippers. Anything freak of the sort.
 
-#### dni
+🎨 Anti System / Fakeclaimers - Tulpas or Endogenics.
 
-⌇ if you like ace attorney, okegom, or DSMP. 
+💫 Enjoy / Have Skins of : **DSMP, Wadanohara, Okegom, or Ace Attorney**. 
 
-﹏ self proclaimed "problematic" / proshippers.
+🍄 Constantly say slurs, reclaimable or not. "I'm being hatecrimed" jokes, boo.
 
-⌇ will call my skins weird things like a "h1mbo" or "m1lf"
-
-﹏ ship philliam / phildave.
-
-⌇ kin ivy boseman, henry emily, or glamrock freddy
-(i am them irl, sorry)
-
-﹏ anti tt/td. you're weird.
-
-⌇ you flaunt how many people have you hidden for being a shithead.
-
-﹏ you make dave/willc3st jokes (pick up knitting. get a hobby)
+🧸 If you kin [**1**](https://blueycapsules.fandom.com/wiki/Ivy_Boseman), [**2**](https://blueycapsules.fandom.com/wiki/Henry_Emily), [**3**](https://marvelcinematicuniverse.fandom.com/wiki/Christine_Palmer), [4](https://freddy-fazbears-pizza.fandom.com/wiki/Glamrock_Freddy), [5](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=&ved=2ahUKEwjCzumT_t33AhXVsYQIHf3EDRgQFnoECB0QAQ&url=https%3A%2F%2Fthewaltenarchives.fandom.com%2Fwiki%2FRosemary_Walten&usg=AOvVaw1ue4bIPOn68i-zNbG7Vedn), [6](https://thewaltenarchives.fandom.com/wiki/Billy) ♥︎
+- Fictives / Introjects wtvr. Do what makes you comfy <3
