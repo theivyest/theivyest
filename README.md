@@ -39,3 +39,5 @@
 
 🧸 If you kin [**1**](https://blueycapsules.fandom.com/wiki/Ivy_Boseman), [**2**](https://blueycapsules.fandom.com/wiki/Henry_Emily), [**3**](https://marvelcinematicuniverse.fandom.com/wiki/Christine_Palmer), [4](https://freddy-fazbears-pizza.fandom.com/wiki/Glamrock_Freddy), [5](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=&ved=2ahUKEwjCzumT_t33AhXVsYQIHf3EDRgQFnoECB0QAQ&url=https%3A%2F%2Fthewaltenarchives.fandom.com%2Fwiki%2FRosemary_Walten&usg=AOvVaw1ue4bIPOn68i-zNbG7Vedn), [6](https://thewaltenarchives.fandom.com/wiki/Billy) ♥︎
 - Fictives / Introjects wtvr. Do what makes you comfy <3
+
+🌟 Weirdos who report minors. Cope. 
